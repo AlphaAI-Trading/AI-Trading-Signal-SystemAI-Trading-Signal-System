@@ -24,4 +24,4 @@ Confidence: 78%
 ## 🔒 Premium Version
 Advanced signals + higher accuracy available
 
-📩 Contact / Telegram: (your link)
+📩 Contact - skcstudio6@gmail.com
